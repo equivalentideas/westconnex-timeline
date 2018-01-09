@@ -10,7 +10,7 @@ Notes:
 
 A few more entries to come here on M4 East for 2009/2010- just brief
 
-## 2009/3/31
+## 31/3/2009
 
 SMH Linton Besser reveals that secret plan by Labor gov to revive M4 East which was dropped after massive opposition in 2005. Underground tollways 
 
@@ -22,7 +22,7 @@ Notes:
 
 http://www.smh.com.au/national/secret-plans-to-revive-m4-east-20090330-9h2l.html
 
-## 2011/2/15
+## 15/2/2011
 
 Month before nsw state election NRMA issues report recommending the NSW gov to build the 8.5-k M4 East tunnel between Concord and city.NRMA argues removing traffic, esp trucks - from Parra Rd & putting it underground, would transform road into boulevard of ''transit-oriented development'', lined with medium-density housing, shops and cafes.Plan drawn up by leading urban planners, Ed Blakely, there would 2 lanes for light rail along middle Rd, as well as cycleway & two lanes for slower-moving local traffic.Asked if ..was a trade-off for getting M4 East, the NRMA president, Wendy Machin, said: ''Yes, I think so.''''If you're talking about perception, this could make it more palatable [to motorway sceptics], especially if opponents can see it is part of a holistic land-use plan.'' 23,000 flats ‘tween the city & Strathfield & upgrade of what planners call classic ''traffic sewer'' - a noisy, congested & polluted artery that divides neighbourhoods.
 
@@ -34,11 +34,11 @@ Wendy Machin in ex national party Minister Assisting the Minister for Roads and 
 
 NRMA putting idea out before election
 
-## 2011/3/28
+## 28/3/2011
 
 O’Farrell government elected 
 
-## 2012/10/1
+## 1/10/2012
 
 NSW Gov repeals Part 3A EP&A Act. Replaced by State significant development and State significant infrastructure assessment systems . Roads are included under some circs. All projects under new sections require an EIS. However, under  new amendments ‘community consultation’ becomes ‘feedback’, engagement and information. Not all houses along linear infrastructure projects have to be notified by letter 
 
